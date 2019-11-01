@@ -1,0 +1,9 @@
+PL
+TCF.EFCT
+PPPRPPPP
+........
+...P....
+p......p
+........
+.pppppp.
+tcfrefct
